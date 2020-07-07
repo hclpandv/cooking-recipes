@@ -4,8 +4,8 @@
 
 ```
 200g toor daal
-3 tomato 
-adrak lahson -  1 table spoon
+3 tomatos 
+adrak lahsun -  1 table spoon
 3 tea spoon lal mirch powder
 1/2 teasp haldi 
 3 cups water
@@ -30,5 +30,5 @@ adrak lahson -  1 table spoon
 7 jaw lahsu
 
 fry all & then add kadi patta 
-now add daal in it .
+--- Now add daal in it .
 ```
