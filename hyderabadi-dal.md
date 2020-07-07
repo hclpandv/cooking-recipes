@@ -24,11 +24,13 @@ adrak lahsun -  1 table spoon
 
 ============
 
+##Tadka
+
 2 tablespoon oil in frying pan
 1 teaspoon jeera in hot oil
 4 pcs red mirch
-7 jaw lahsu
+7 Lahsun ki kaliyan (whole garlic pieces)
 
-fry all & then add kadi patta 
+fry all & then add curry leaves 
 --- Now add daal in it .
 ```
